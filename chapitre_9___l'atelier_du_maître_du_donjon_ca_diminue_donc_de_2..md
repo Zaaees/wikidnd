@@ -1,0 +1,4 @@
+## CA diminue donc de 2.
+
+
+Les STATISTIQUES DE MONSTRES PAR INDICE DE
